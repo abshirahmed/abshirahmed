@@ -36,7 +36,7 @@ I’m a bit of a **perfectionist** and I don’t always take the pragmatic appro
 
 **Procrastination** is both a friend and an enemy of mine. Although I get things done on time, I sometimes leave things till the last minute. For some strange reason I enter **beast mode 🔥** when I’m under time constrained pressure 😫
 
-One thing I cannot stand **condescending** or **arrogant** tones or behaviours, whether that be directed towards me or towards somebody else. You will **automatically** be placed in my **bad book** if I feel or sense any form of this. I treat people with **respect** and I expect the same. If you have an opportunity to teach me or someone something, then do it in a respectful non condescending manner.
+One thing I cannot stand is **condescending** or **arrogant** tones or behaviours, whether that be directed towards me or towards somebody else. You will **automatically** be placed in my **bad book** if I feel or sense any form of this. I treat people with **respect** and I expect the same. If you have an opportunity to teach me or someone else something, then do it in a respectful non condescending manner.
 
 ### Things I love
 I enjoy working with people who take **pride** in their work/trade. Who come with **good energy** and **motivation**. The kind of people who **bring out the best in others** as well as those who have **strong emotional intelligence**.
