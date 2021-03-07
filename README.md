@@ -19,7 +19,7 @@ I prefer **face to face** communication where possible.
 You can **slack** me a message anytime, I tend to respond pretty quickly. 
 You can also **email** me but I don’t tend to check my emails as often.
 
-I’m not a mind reader so if I offended you or you feel a certain way, please let me know and I will certainly stop whatever behaviour it is that makes you feel that way. **It’s not healthy to hold grudges**.
+I’m not a mind reader so if I've offended you unknowingly or you feel a certain way, please let me know and I will certainly stop whatever behaviour it is that makes you feel upset. **It’s not healthy to hold grudges**.
 
 ### The ways I like to receive feedback
 A **regular** dose of **feedback** is what I need. I need to know when I’m doing something well and when I’m not. Coupled with an example of the situation/scenario. I’m a big boy, so be brutally honest with feedback. How can I improve if I don’t know where I need to improve?
