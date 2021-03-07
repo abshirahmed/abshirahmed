@@ -1,6 +1,6 @@
 ## User Manual of me
 
-Hola 👋🏾 I’m Abshir (**AB-SH-EAR**) I was born in the **White Pearl of the Indian Ocean** (Mogadishu, Somalia) but have been living in **Camden** since fleeing civil war in my country at the age of 2.
+Hola 👋🏾 I’m Abshir (**AB-SH-EAR**) I was born in the **White Pearl of the Indian Ocean** (Mogadishu, Somalia) but have been living in **Camden** since fleeing civil war in my country aged 2.
 
 ### Conditions I like to work in
 I love working in **fun vibrant** environments where people can **genuinely be themselves**. I cherish **honesty** and **respect**, which others can expect from me. I love **banter** and I tend to goof around quite a lot 🤪 
