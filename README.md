@@ -34,7 +34,7 @@ I sometimes need to let off some steam, I usually do this by going on a walk to 
 ### Things I struggle with
 I’m a bit of a **perfectionist** and I don’t always take the pragmatic approach when solving problems, this sometimes means delays. I’m still internalising the saying; **_“perfectionism is the enemy of progress”_**.
 
-**Procrastination** is both a friend and an enemy of mine. Although I get things done on time, I sometimes leave things till the last minute. This habit didn’t even stop me from delaying work on my dissertations. I somehow still did really well in both 🤷🏾‍♂️ For some strange reason I enter **beast mode** when I’m under a lot of pressure 😫
+**Procrastination** is both a friend and an enemy of mine. Although I get things done on time, I sometimes leave things till the last minute. For some strange reason I enter **beast mode 🔥** when I’m under time constrained pressure 😫
 
 One thing I cannot stand **condescending** or **arrogant** tones or behaviours, whether that be directed towards me or towards somebody else. You will **automatically** be placed in my **bad book** if I feel or sense any form of this. I treat people with **respect** and I expect the same. If you have an opportunity to teach me or someone something, then do it in a respectful non condescending manner.
 
