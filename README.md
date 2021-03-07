@@ -47,4 +47,4 @@ I am a **family man** with 3 beautiful children. When I’m not chasing the kids
 
 I’m in a toxic relationship with **Arsenal FC** and I’m actually contemplating revoking my support for them. Surely it’s not good for my health.
 
-I love helping others and thus founded a community organisation called [Somalis in Tech](https://twitter.com/somalisintech) which aims to **redress the lack of diversity** in the tech space. We host **talks**, **discussions** and **activities**, aimed at **motivating**, **empowering** and **building confidence** within the community.
+I love helping others and thus founded a community organisation called <a href="https://twitter.com/somalisintech" target="_blank"><strong>Somalis in Tech</strong></a> which aims to **redress the lack of diversity** in the tech space. We host **talks**, **discussions** and **activities**, aimed at **motivating**, **empowering** and **building confidence** within the community.
