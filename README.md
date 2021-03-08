@@ -44,7 +44,7 @@ I enjoy working with people who take **pride** in their work/trade. Who come wit
 I enjoy seeing the fruits of my labour, I’m very **results driven**. I love **engineering excellence**. Things that make me say _“oooh, now that’s nice”_. 
 
 ### Other things to know about me
-I am a **family man** with 3 beautiful children. When I’m not chasing the kids around the house, I’m probably chasing that **stupid cat** we have. I **love to cook** and am actually pretty good at it. The family loves it when it’s my day to cook.
+I am a **family man** with 3 beautiful children and an amazing wife. When I’m not chasing the kids around the house, I’m probably chasing that **stupid cat** we have. I **love to cook** and am actually pretty good at it. The family loves it when it’s my day to cook.
 
 I’m in a toxic relationship with **Arsenal FC** and I’m actually contemplating revoking my support for them. Surely it’s not good for my health.
 
