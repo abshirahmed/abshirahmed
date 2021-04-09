@@ -23,6 +23,8 @@ I prefer **face to face** communication where possible.
 You can **slack** me a message anytime, I tend to respond pretty quickly. 
 You can also **email** me but I tend not to check my emails as often.
 
+<img src="https://media.giphy.com/media/jV4wbvtJxdjnMriYmY/giphy.gif" width="180px">
+
 I’m not a mind reader so if I've offended you unknowingly or you feel a certain way, **please let me know** and I will certainly stop whatever behaviour it is that makes you feel upset. **It’s not healthy to hold grudges**.
 
 ### The ways I like to receive feedback
@@ -58,7 +60,11 @@ I enjoy seeing the fruits of my labour, I’m very **results driven**. I love **
 ### Other things to know about me
 I am a **family man** with **3 beautiful children** and an **incredible wife**. When I’m not chasing the kids around the house, I’m probably chasing our **stupid cat**. I **love to cook** and am actually pretty good at it. The family loves it when it’s my day to cook.
 
+<img src="https://media.giphy.com/media/12lL9jqB0Ogx2w/giphy.gif" width="180px">
+
 I’m in a toxic relationship with **Arsenal FC** and I’m actually contemplating revoking my support for them. Surely it’s not good for my health.
+
+<img src="https://media.giphy.com/media/RkN336FNusqWCV4RRQ/giphy.gif" width="180px">
 
 I love helping others and thus founded a social enterprise called [Somalis in Tech](https://twitter.com/somalisintech) which aims to **redress the lack of diversity** in the tech space. We host **talks**, **discussions** and **activities**, aimed at **motivating**, **empowering** and **building confidence** within the community.
 
