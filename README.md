@@ -6,17 +6,17 @@ Iska waran <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/mas
 I love working in **fun vibrant** environments where people can **genuinely be themselves**. I cherish **honesty** and **respect**, which others can expect from me. I love **banter** and I tend to goof around quite a lot 🤪 
 
 I enjoy working in **collaborative** environments yet I enjoy me some **autonomy**. I like working in environments where **team** and **individual contributions** are **noticed**, **recognised** and **rewarded**. I try to praise and bring the best out of those around me often.
-<img src="https://media.giphy.com/media/0Av9l0VIc01y1isrDw/giphy.gif" width="200">
+<img src="https://media.giphy.com/media/0Av9l0VIc01y1isrDw/giphy.gif" width="180px">
 
 I have a strong appetite for **learning** and **understanding** new things, so you’ll find I ask a lot of questions. I am technically minded and love a good **challenge**, and I get a good kick out of **solving problems**.
 
-<img src="https://i.redd.it/4nub7lygkyr61.png" width="200">
-
 Finally, I learn best through **audio/visual** mediums, I love me a good **block diagram**. I read **documentations** for clarity and I like to get stuck right in. 
+
+<img src="https://i.redd.it/4nub7lygkyr61.png" width="180px">
 
 ### The times/hours I like to work
 I work well throughout the day, however, if I’ve had a large lunch 🍔 it usually takes some time for me to get back into gear ⚙️ 
-<img src="https://media.giphy.com/media/xUNd9WRzh2oOLi8Pba/giphy.gif" width="200">
+<img src="https://media.giphy.com/media/xUNd9WRzh2oOLi8Pba/giphy.gif" width="180px">
 
 ### The best ways to communicate with me
 I prefer **face to face** communication where possible. 
