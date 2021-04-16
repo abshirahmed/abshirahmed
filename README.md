@@ -67,6 +67,3 @@ I’m in a toxic relationship with **Arsenal FC** and I’m actually contemplati
 <img src="https://media.giphy.com/media/RkN336FNusqWCV4RRQ/giphy.gif" width="180px">
 
 I love helping others and thus founded a social enterprise called [Somalis in Tech](https://twitter.com/somalisintech) which aims to **redress the lack of diversity** in the tech space. We host **talks**, **discussions** and **activities**, aimed at **motivating**, **empowering** and **building confidence** within the community.
-
-
-![Visitor Count](https://profile-counter.glitch.me/{abshirahmed}/count.svg)
