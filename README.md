@@ -58,7 +58,7 @@ I enjoy seeing the fruits of my labour, I’m very **results driven**. I love **
 <img src="https://media.giphy.com/media/dwASdTvuKgflCCo3su/giphy.gif" width="180px">
 
 ### Other things to know about me
-I am a **family man** with **3 beautiful children** and an **incredible wife**. When I’m not chasing the kids around the house, I’m probably chasing our **stupid cat**. I **love to cook** and am actually pretty good at it. The family loves it when it’s my day to cook.
+I am a **family man** with **4 beautiful children** and an **incredible wife**. When I’m not chasing the kids around the house, I’m probably chasing our **stupid cat**. I **love to cook** and am actually pretty good at it. The family loves it when it’s my day to cook.
 
 <img src="https://media.giphy.com/media/12lL9jqB0Ogx2w/giphy.gif" width="180px">
 
